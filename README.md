@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Asya19.github.io/rsschool-cv/cv
